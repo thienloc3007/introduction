@@ -1,1 +1,1 @@
-# Nic to meet you, my new friends!
+# Nice to meet you, my new friends!
